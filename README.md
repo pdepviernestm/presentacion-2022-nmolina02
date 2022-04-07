@@ -12,6 +12,6 @@ Hola, soy **Nicolás Ariel Chavero Molina**, tengo 19 años y mi número de lega
 
 * Suelo ver varias series y películas, mi favorita es la saga de Rocky.
 
-* Cuando juego videojuegos, la mayoría de las veces juego al FIFA, aunque también me gustan los juegos que son de aventura y cuentan historias.
+* Cuando juego videojuegos, la mayoría de las veces juego al FIFA, aunque también me gustan los juegos que son de aventura y cuentan historias, como el "Uncharted" y el "Tomb Raider".
 
 * Me gusta jugar al fútbol con amigos, y también ir a ver partidos a la cancha.
